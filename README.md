@@ -1,2 +1,4 @@
 # discussions
-Discussions for Organization
+
+Hey! Otakus!  
+Let's discuss about future or anything here...
